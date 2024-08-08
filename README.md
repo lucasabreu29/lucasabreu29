@@ -1,0 +1,7 @@
+- # 👋 Olá, Eu sou o @lucasabreu29
+- 👀 Eu estou interessado em games.
+- 🌱 Eu estou atualmente estudando na Alura.
+- 💞️ Estou procurando colaborar com o meio ambiente.
+- 📫 Como me encontrar - e-mail:00001105952137sp@al.educacao.sp.gov.br
+- 😄 Pronomes: ele/dele
+- ⚡ Fun fact: eu gosto de jogar futebol
